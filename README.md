@@ -1,2 +1,2 @@
 # posternura.github.io
-(banner.png)
+![campamento banner](banner.png)
