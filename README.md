@@ -11,7 +11,8 @@ El Campamento Cyberpunk Posternura es un encuentro que se realiza anualmente des
     - link Zoom: [uchile.zoom.us/j/88601243059?pwd=K3l1LzdmcU8rSk1VNGRub3dzRG5RUT09](https://uchile.zoom.us/j/88601243059?pwd=K3l1LzdmcU8rSk1VNGRub3dzRG5RUT09) 
     - link Youtube: [youtu.be/lTX7umZvyNs](https://youtu.be/lTX7umZvyNs)
   - 19:00 Charla Taller: José Vicente Asuar, pionero chileno/ Alejandro Albornoz
-    - link Youtube: [https://youtu.be/iKXOYRHT3rM](https://youtu.be/iKXOYRHT3rM) 
+    - link Zoom: [reuna.zoom.us/j/85714670879?pwd=ZVJtdU02VlZlbStPQlFUd2s5bjVIZz09](https://reuna.zoom.us/j/85714670879?pwd=ZVJtdU02VlZlbStPQlFUd2s5bjVIZz09) 
+    - link Youtube: [https://youtu.be/iKXOYRHT3rM](https://youtu.be/iKXOYRHT3rM)
   - 21:00 Charla Taller : Protocolos / Oscar Llauquén
     - link Zoom: [uchile.zoom.us/j/83636830489?pwd=Z3QzNXRtT0sxc3Ftd0U3Um5rRkdMdz09](https://uchile.zoom.us/j/83636830489?pwd=Z3QzNXRtT0sxc3Ftd0U3Um5rRkdMdz09)
     - link Youtube: [https://youtu.be/D0lHox7RMaM](https://youtu.be/D0lHox7RMaM) 
