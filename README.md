@@ -2,6 +2,8 @@
 
 El Campamento Cyberpunk Posternura es un encuentro que se realiza anualmente desde el año 2019 en la ciudad de Valdivia. El espíritu que nos guía es el del libre encuentro entre artistas que trabajen los medios y la tecnología. Promoviendo prácticas éticas latinoamericanas de trabajo colaborativo. Durante el año 2020 el Campamento expandió sus prácticas para seguir desarrollando las colaboraciones, para ello fueron organizadas tocatas periódicas y entrevistas a artistas.
 
+### Evento en FB: https://www.facebook.com/events/1090230341453153
+
 - Miércoles 24/02
   - 15:00 Inauguración
   - 17:00 Charla Taller: Descubriendo juntxs algo de SMS Bomber / X_x (link https://youtu.be/lTX7umZvyNs)
