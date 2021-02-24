@@ -10,7 +10,9 @@ El Campamento Cyberpunk Posternura es un encuentro que se realiza anualmente des
     - link Zoom: [uchile.zoom.us/j/88601243059?pwd=K3l1LzdmcU8rSk1VNGRub3dzRG5RUT09](https://uchile.zoom.us/j/88601243059?pwd=K3l1LzdmcU8rSk1VNGRub3dzRG5RUT09) 
     - link Youtube: [youtu.be/lTX7umZvyNs](https://youtu.be/lTX7umZvyNs)
   - 19:00 Charla Taller: José Vicente Asuar, pionero chileno/ Alejandro Albornoz
+    - link Youtube: [https://youtu.be/iKXOYRHT3rM](https://youtu.be/iKXOYRHT3rM) 
   - 21:00 Charla Taller : Protocolos / Oscar Llauquén
+    - link Youtube: [https://youtu.be/D0lHox7RMaM](https://youtu.be/D0lHox7RMaM) 
 - Jueves 25/02
   - 15:00 Taller: de los ritmos en Sonic PI / Sean Moscoso
   - 18:00 Entrevista a Valeria Hernández / Felipe Weason
