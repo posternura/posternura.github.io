@@ -8,7 +8,7 @@ El Campamento Cyberpunk Posternura es un encuentro que se realiza anualmente des
 - Miércoles 24/02
   - 15:00 Inauguración
   - 17:00 Charla Taller: Descubriendo juntxs algo de SMS Bomber / X_x 
-    - Zoom: [uchile.zoom.us/j/88601243059?pwd=K3l1LzdmcU8rSk1VNGRub3dzRG5RUT09](https://uchile.zoom.us/j/88601243059?pwd=K3l1LzdmcU8rSk1VNGRub3dzRG5RUT09) 
+    - Zoom: https://uchile.zoom.us/j/88601243059?pwd=K3l1LzdmcU8rSk1VNGRub3dzRG5RUT09
     - Youtube: [youtu.be/lTX7umZvyNs](https://youtu.be/lTX7umZvyNs)
   - 19:00 Charla Taller: José Vicente Asuar, pionero chileno/ Alejandro Albornoz
     - Zoom: [reuna.zoom.us/j/85714670879?pwd=ZVJtdU02VlZlbStPQlFUd2s5bjVIZz09](https://reuna.zoom.us/j/85714670879?pwd=ZVJtdU02VlZlbStPQlFUd2s5bjVIZz09) 
