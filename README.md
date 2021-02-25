@@ -32,7 +32,7 @@ El Campamento Cyberpunk Posternura es un encuentro que se realiza anualmente des
   - 15:00 Taller : Síntesis de video en Hydra / Constanza - Sebastián Rojas
     - link Zoom: [https://uchile.zoom.us/j/81810533907?pwd=S0pDdVgvWnlkTHFqZmhsVzBkcGlkUT09](https://uchile.zoom.us/j/81810533907?pwd=S0pDdVgvWnlkTHFqZmhsVzBkcGlkUT09)
   - 21:00 Tokata: voodoochild / Dosis ( Juliana Ortigoza + Alvaro Obyrme) / ### / x_x / Prof. Morezane / Jucsay / Polwor
-    - link Youtube: [https://youtu.be/nvXRFdmrHv0](https://youtu.be/nvXRFdmrHv0) 
+    - link Youtube: [https://youtu.be/iIG9Xp2CN4Q](https://youtu.be/iIG9Xp2CN4Q) 
 
 
 Las charlas y tokatas serán transmitidas por nuestro canal de youtube:
