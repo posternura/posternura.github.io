@@ -27,6 +27,7 @@ El Campamento Cyberpunk Posternura es un encuentro que se realiza anualmente des
   - 15:00 Taller: Codigo y Poesía / Jorge Forero
     - Zoom: [https://uchile.zoom.us/j/81267305877?pwd=WWtVQ0hKU3hBNmRuaGlKa2lWMEJtQT09](https://uchile.zoom.us/j/81267305877?pwd=WWtVQ0hKU3hBNmRuaGlKa2lWMEJtQT09)
   - 18:00 Entrevista a Alejandro Orellana / Felipe Weason
+    - Youtube: [https://youtu.be/_-cdguU-8-8](https://youtu.be/_-cdguU-8-8) 
   - 21:00 Convivencia, Invita Aarón Montoya-Moraga
     - Zoom: [https://uchile.zoom.us/j/86505586639?pwd=MkFDa2t4N2tCc2YxcVBQUjZBK203dz09](https://uchile.zoom.us/j/86505586639?pwd=MkFDa2t4N2tCc2YxcVBQUjZBK203dz09)
 - Sábado 27/02
