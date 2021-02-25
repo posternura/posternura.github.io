@@ -8,31 +8,31 @@ El Campamento Cyberpunk Posternura es un encuentro que se realiza anualmente des
 - Miércoles 24/02
   - 15:00 Inauguración
   - 17:00 Charla Taller: Descubriendo juntxs algo de SMS Bomber / X_x 
-    - link Zoom: [uchile.zoom.us/j/88601243059?pwd=K3l1LzdmcU8rSk1VNGRub3dzRG5RUT09](https://uchile.zoom.us/j/88601243059?pwd=K3l1LzdmcU8rSk1VNGRub3dzRG5RUT09) 
-    - link Youtube: [youtu.be/lTX7umZvyNs](https://youtu.be/lTX7umZvyNs)
+    - Zoom: [uchile.zoom.us/j/88601243059?pwd=K3l1LzdmcU8rSk1VNGRub3dzRG5RUT09](https://uchile.zoom.us/j/88601243059?pwd=K3l1LzdmcU8rSk1VNGRub3dzRG5RUT09) 
+    - Youtube: [youtu.be/lTX7umZvyNs](https://youtu.be/lTX7umZvyNs)
   - 19:00 Charla Taller: José Vicente Asuar, pionero chileno/ Alejandro Albornoz
-    - link Zoom: [reuna.zoom.us/j/85714670879?pwd=ZVJtdU02VlZlbStPQlFUd2s5bjVIZz09](https://reuna.zoom.us/j/85714670879?pwd=ZVJtdU02VlZlbStPQlFUd2s5bjVIZz09) 
-    - link Youtube: [https://youtu.be/iKXOYRHT3rM](https://youtu.be/iKXOYRHT3rM)
+    - Zoom: [reuna.zoom.us/j/85714670879?pwd=ZVJtdU02VlZlbStPQlFUd2s5bjVIZz09](https://reuna.zoom.us/j/85714670879?pwd=ZVJtdU02VlZlbStPQlFUd2s5bjVIZz09) 
+    - Youtube: [https://youtu.be/iKXOYRHT3rM](https://youtu.be/iKXOYRHT3rM)
   - 21:00 Charla Taller : Protocolos / Oscar Llauquén
-    - link Zoom: [uchile.zoom.us/j/83636830489?pwd=Z3QzNXRtT0sxc3Ftd0U3Um5rRkdMdz09](https://uchile.zoom.us/j/83636830489?pwd=Z3QzNXRtT0sxc3Ftd0U3Um5rRkdMdz09)
-    - link Youtube: [https://youtu.be/D0lHox7RMaM](https://youtu.be/D0lHox7RMaM) 
+    - Zoom: [uchile.zoom.us/j/83636830489?pwd=Z3QzNXRtT0sxc3Ftd0U3Um5rRkdMdz09](https://uchile.zoom.us/j/83636830489?pwd=Z3QzNXRtT0sxc3Ftd0U3Um5rRkdMdz09)
+    - Youtube: [https://youtu.be/D0lHox7RMaM](https://youtu.be/D0lHox7RMaM) 
 - Jueves 25/02
   - 15:00 Taller: de los ritmos en Sonic PI / Sean Moscoso
-    - link Zoom: [https://uchile.zoom.us/j/89483394039?pwd=aXJoM29oS2JXN3UyaFFVS2N0NFIrdz09](https://uchile.zoom.us/j/89483394039?pwd=aXJoM29oS2JXN3UyaFFVS2N0NFIrdz09)
+    - Zoom: [https://uchile.zoom.us/j/89483394039?pwd=aXJoM29oS2JXN3UyaFFVS2N0NFIrdz09](https://uchile.zoom.us/j/89483394039?pwd=aXJoM29oS2JXN3UyaFFVS2N0NFIrdz09)
   - 18:00 Entrevista a Valeria Hernández / Felipe Weason
   - 20:30 Tokata: David Cr0wl3y / Niñosindigo / Hypereikon / Sean Moscoso - Felipe Weason / Noisk8 / Felipe Gonzalez / JCapsule
-    - link Youtube: [https://youtu.be/nvXRFdmrHv0](https://youtu.be/nvXRFdmrHv0) 
+    - Youtube: [https://youtu.be/nvXRFdmrHv0](https://youtu.be/nvXRFdmrHv0) 
 - Viernes 26/02
   - 15:00 Taller: Codigo y Poesía / Jorge Forero
-    - link Zoom: [https://uchile.zoom.us/j/81267305877?pwd=WWtVQ0hKU3hBNmRuaGlKa2lWMEJtQT09](https://uchile.zoom.us/j/81267305877?pwd=WWtVQ0hKU3hBNmRuaGlKa2lWMEJtQT09)
+    - Zoom: [https://uchile.zoom.us/j/81267305877?pwd=WWtVQ0hKU3hBNmRuaGlKa2lWMEJtQT09](https://uchile.zoom.us/j/81267305877?pwd=WWtVQ0hKU3hBNmRuaGlKa2lWMEJtQT09)
   - 18:00 Entrevista a Alejandro Orellana / Felipe Weason
   - 21:00 Convivencia, Invita Aarón Montoya-Moraga
-    - link Zoom: [https://uchile.zoom.us/j/86505586639?pwd=MkFDa2t4N2tCc2YxcVBQUjZBK203dz09](https://uchile.zoom.us/j/86505586639?pwd=MkFDa2t4N2tCc2YxcVBQUjZBK203dz09)
+    - Zoom: [https://uchile.zoom.us/j/86505586639?pwd=MkFDa2t4N2tCc2YxcVBQUjZBK203dz09](https://uchile.zoom.us/j/86505586639?pwd=MkFDa2t4N2tCc2YxcVBQUjZBK203dz09)
 - Sábado 27/02
   - 15:00 Taller : Síntesis de video en Hydra / Constanza - Sebastián Rojas
-    - link Zoom: [https://uchile.zoom.us/j/81810533907?pwd=S0pDdVgvWnlkTHFqZmhsVzBkcGlkUT09](https://uchile.zoom.us/j/81810533907?pwd=S0pDdVgvWnlkTHFqZmhsVzBkcGlkUT09)
+    - Zoom: [https://uchile.zoom.us/j/81810533907?pwd=S0pDdVgvWnlkTHFqZmhsVzBkcGlkUT09](https://uchile.zoom.us/j/81810533907?pwd=S0pDdVgvWnlkTHFqZmhsVzBkcGlkUT09)
   - 21:00 Tokata: voodoochild / Dosis ( Juliana Ortigoza + Alvaro Obyrme) / ### / x_x / Prof. Morezane / Jucsay / Polwor
-    - link Youtube: [https://youtu.be/iIG9Xp2CN4Q](https://youtu.be/iIG9Xp2CN4Q) 
+    - Youtube: [https://youtu.be/iIG9Xp2CN4Q](https://youtu.be/iIG9Xp2CN4Q) 
 
 
 Las charlas y tokatas serán transmitidas por nuestro canal de youtube:
