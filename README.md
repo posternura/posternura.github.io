@@ -19,23 +19,23 @@ El Campamento Cyberpunk Posternura es un encuentro que se realiza anualmente des
 - Jueves 25/02 
   - 15:00 Taller: de los ritmos en Sonic PI / Sean Moscoso
     - Zoom: https://uchile.zoom.us/j/89483394039?pwd=aXJoM29oS2JXN3UyaFFVS2N0NFIrdz09
-    - Youtube: [https://youtu.be/aZoeU1lS9pc](https://youtu.be/aZoeU1lS9pc) 
+    - Youtube: https://youtu.be/aZoeU1lS9pc
   - 18:00 Entrevista a Valeria Hernández / Felipe Weason
-    - Youtube: [https://youtu.be/WND35bOMqbI](https://youtu.be/WND35bOMqbI) 
+    - Youtube: https://youtu.be/WND35bOMqbI
   - 20:30 Tokata: David Cr0wl3y / Niñosindigo / Hypereikon / Sean Moscoso - Felipe Weason / Noisk8 / Felipe Gonzalez / JCapsule
-    - Youtube: [https://youtu.be/nvXRFdmrHv0](https://youtu.be/nvXRFdmrHv0) 
+    - Youtube: https://youtu.be/nvXRFdmrHv0
 - Viernes 26/02
   - 15:00 Taller: Codigo y Poesía / Jorge Forero
-    - Zoom: [https://uchile.zoom.us/j/81267305877?pwd=WWtVQ0hKU3hBNmRuaGlKa2lWMEJtQT09](https://uchile.zoom.us/j/81267305877?pwd=WWtVQ0hKU3hBNmRuaGlKa2lWMEJtQT09)
+    - Zoom: https://uchile.zoom.us/j/81267305877?pwd=WWtVQ0hKU3hBNmRuaGlKa2lWMEJtQT09
   - 18:00 Entrevista a Alejandro Orellana / Felipe Weason
-    - Youtube [link](https://youtu.be/_-cdguU-8-8) 
+    - Youtube https://youtu.be/_-cdguU-8-8
   - 21:00 Convivencia, Invita Aarón Montoya-Moraga
-    - Zoom: [https://uchile.zoom.us/j/86505586639?pwd=MkFDa2t4N2tCc2YxcVBQUjZBK203dz09](https://uchile.zoom.us/j/86505586639?pwd=MkFDa2t4N2tCc2YxcVBQUjZBK203dz09)
+    - Zoom: https://uchile.zoom.us/j/86505586639?pwd=MkFDa2t4N2tCc2YxcVBQUjZBK203dz09
 - Sábado 27/02
   - 15:00 Taller : Síntesis de video en Hydra / Constanza - Sebastián Rojas
-    - Zoom: [https://uchile.zoom.us/j/81810533907?pwd=S0pDdVgvWnlkTHFqZmhsVzBkcGlkUT09](https://uchile.zoom.us/j/81810533907?pwd=S0pDdVgvWnlkTHFqZmhsVzBkcGlkUT09)
+    - Zoom: https://uchile.zoom.us/j/81810533907?pwd=S0pDdVgvWnlkTHFqZmhsVzBkcGlkUT09
   - 21:00 Tokata: voodoochild / Dosis ( Juliana Ortigoza + Alvaro Obyrme) / ### / x_x / Prof. Morezane / Jucsay / Polwor
-    - Youtube: [https://youtu.be/iIG9Xp2CN4Q](https://youtu.be/iIG9Xp2CN4Q) 
+    - Youtube: https://youtu.be/iIG9Xp2CN4Q
 
 
 Las charlas y tokatas serán transmitidas por nuestro canal de youtube:
@@ -43,9 +43,9 @@ https://www.youtube.com/posternurarecords y en nuestra pagina https://posternura
 Los talleres tendrán cada uno un link abierto de acceso que estara disponible durante el día en de que se inicie.
 
 
-- [Canal en Youtube](https://www.youtube.com/posternurarecords)
-- [Campamento de Verano Cyberpunk en FB](https://www.facebook.com/veranoCyberpunk)
-- [Posternura Records en FB](https://www.facebook.com/posternurarecords/)
+- Canal en Youtube: https://www.youtube.com/posternurarecords
+- Campamento de Verano Cyberpunk en FB: https://www.facebook.com/veranoCyberpunk
+- Posternura Records en FB: https://www.facebook.com/posternurarecords/
 
 ![campamento banner](banner.png)
 ![campamento flayer](flayer.png)
