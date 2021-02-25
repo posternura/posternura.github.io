@@ -20,6 +20,7 @@ El Campamento Cyberpunk Posternura es un encuentro que se realiza anualmente des
   - 15:00 Taller: de los ritmos en Sonic PI / Sean Moscoso
     - Zoom: [https://uchile.zoom.us/j/89483394039?pwd=aXJoM29oS2JXN3UyaFFVS2N0NFIrdz09](https://uchile.zoom.us/j/89483394039?pwd=aXJoM29oS2JXN3UyaFFVS2N0NFIrdz09)
   - 18:00 Entrevista a Valeria Hernández / Felipe Weason
+    - Youtube: [https://youtu.be/WND35bOMqbI](https://youtu.be/WND35bOMqbI) 
   - 20:30 Tokata: David Cr0wl3y / Niñosindigo / Hypereikon / Sean Moscoso - Felipe Weason / Noisk8 / Felipe Gonzalez / JCapsule
     - Youtube: [https://youtu.be/nvXRFdmrHv0](https://youtu.be/nvXRFdmrHv0) 
 - Viernes 26/02
