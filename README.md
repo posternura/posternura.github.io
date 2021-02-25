@@ -21,6 +21,7 @@ El Campamento Cyberpunk Posternura es un encuentro que se realiza anualmente des
     - link Zoom: [https://uchile.zoom.us/j/89483394039?pwd=aXJoM29oS2JXN3UyaFFVS2N0NFIrdz09](https://uchile.zoom.us/j/89483394039?pwd=aXJoM29oS2JXN3UyaFFVS2N0NFIrdz09)
   - 18:00 Entrevista a Valeria Hernández / Felipe Weason
   - 20:30 Tokata: David Cr0wl3y / Niñosindigo / Hypereikon / Sean Moscoso - Felipe Weason / Noisk8 / Felipe Gonzalez / JCapsule
+    - link Youtube: [https://youtu.be/nvXRFdmrHv0](https://youtu.be/nvXRFdmrHv0) 
 - Viernes 26/02
   - 15:00 Taller: Codigo y Poesía / Jorge Forero
     - link Zoom: [https://uchile.zoom.us/j/81267305877?pwd=WWtVQ0hKU3hBNmRuaGlKa2lWMEJtQT09](https://uchile.zoom.us/j/81267305877?pwd=WWtVQ0hKU3hBNmRuaGlKa2lWMEJtQT09)
@@ -31,6 +32,7 @@ El Campamento Cyberpunk Posternura es un encuentro que se realiza anualmente des
   - 15:00 Taller : Síntesis de video en Hydra / Constanza - Sebastián Rojas
     - link Zoom: [https://uchile.zoom.us/j/81810533907?pwd=S0pDdVgvWnlkTHFqZmhsVzBkcGlkUT09](https://uchile.zoom.us/j/81810533907?pwd=S0pDdVgvWnlkTHFqZmhsVzBkcGlkUT09)
   - 21:00 Tokata: voodoochild / Dosis ( Juliana Ortigoza + Alvaro Obyrme) / ### / x_x / Prof. Morezane / Jucsay / Polwor
+    - link Youtube: [https://youtu.be/nvXRFdmrHv0](https://youtu.be/nvXRFdmrHv0) 
 
 
 Las charlas y tokatas serán transmitidas por nuestro canal de youtube:
