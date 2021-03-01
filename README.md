@@ -1,3 +1,5 @@
+![posternurarecords_banner](posternurarecords_banner.jpg)
+
 # PosternuraRecords.cl
 
 Links
