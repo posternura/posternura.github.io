@@ -5,6 +5,8 @@ El Campamento Cyberpunk Posternura es un encuentro que se realiza anualmente des
 
 ### Evento en FB: [facebook.com/events/1090230341453153](https://www.facebook.com/events/1090230341453153)
 
+[campamento](campamento2021.md)
+
 - Miércoles 24/02
   - 15:00 Inauguración
   - 17:00 Charla Taller: Descubriendo juntxs algo de SMS Bomber / X_x 
