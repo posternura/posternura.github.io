@@ -1,5 +1,6 @@
+# PosternuraRecords.cl
 
-
+ - [https://posternura.github.io/seminariotokatas2022](https://posternura.github.io/seminariotokatas2022)
  - [posternurarecords.tumblr](https://posternurarecords.tumblr.com/)
  - [youtube/posternurarecords](https://www.youtube.com/posternurarecords)
  - [posternurarecords - fb](https://www.facebook.com/posternurarecords)
@@ -8,4 +9,3 @@
 
 
 ![posternurarecords_banner](posternurarecords_banner.jpg)
-# PosternuraRecords.cl
